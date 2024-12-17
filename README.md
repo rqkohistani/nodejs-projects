@@ -75,7 +75,7 @@ If you have any suggestions, feedback, or ideas for improvement, feel free to sh
 
 ## 🔗 Connect with Me
 
-For more about my **professional experience** and background, check out my [**LinkedIn**](https://www.linkedin.com/in/rqkohistani/).  
+For more about my **professional experience** and background, check out my [**LinkedIn**](https://www.linkedin.com/in/rashed-qazizada-1b64b68a/).  
 Feel free to connect with me for updates, collaborations, or any insights into my projects and journey!
 
 
